@@ -52,7 +52,7 @@ Me? or the monkey? We just	needed	an	interpreter. I'm	sure he's thoughts...
 ...were	senseless?
 ...were grand. Is what I was	going	to say. Could we find	one?
 One	what?
-An interpreter. For the monkey. Would	you	no	enjoy listening to	his	thoughts?
+An interpreter. For the monkey. Would	you	not	enjoy listening to	his	thoughts?
 No	point.
 What makes you say that? Do	you	think	we still	wouldn't understand him?
 Let's	go
